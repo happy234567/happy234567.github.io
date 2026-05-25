@@ -1,2 +1,2 @@
 # happy234567.github.io
-for my ads stuff
+only for the ads verfyfication
